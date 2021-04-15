@@ -1,1 +1,3 @@
 # SimonGame
+🧠 TEST YOUR MEMORY 🧠
+
